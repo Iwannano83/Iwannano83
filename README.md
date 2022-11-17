@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Iwannano83
-- 👀 I’m interested in ..learning analytics 
-- 🌱 I’m currently learning ...nothing 
+- 👀 I’m interested in ..group sex//:;:: 
+- 🌱 I’m currently learning to take kcoc deep...nothing 
 - 💞️ I’m looking to collaborate on ...anything 
 - 📫 How to reach me .email..
 
